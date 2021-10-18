@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @stunited-linhbui
+- 👋 Hi, I’m Linh Bui
 
 ### 👨🏻‍💻 &nbsp;About Me
 
